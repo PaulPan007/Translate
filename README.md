@@ -1,3 +1,4 @@
+[原文地址](https://www.quora.com/What-would-be-the-top-10-cryptocurrency-in-2019)
 # Translate
 目前，大约有1,500个加密货币已经设法在交易所上市并获得某种牵引力。
 
