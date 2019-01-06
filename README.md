@@ -1,5 +1,5 @@
 [原文地址](https://www.quora.com/What-would-be-the-top-10-cryptocurrency-in-2019)
-# Translate
+## Translate
 目前，大约有1,500个加密货币已经设法在交易所上市并获得某种牵引力。
 
 在这1500个中，有500个是真正的shitcoins，500个普通币，400个好币，90个非常好的币和10个世界级币。
